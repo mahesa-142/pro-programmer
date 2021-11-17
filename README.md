@@ -1,2 +1,2 @@
-# pro-gramer
+# pro-grammer
 menjadi lebih baik lagi
